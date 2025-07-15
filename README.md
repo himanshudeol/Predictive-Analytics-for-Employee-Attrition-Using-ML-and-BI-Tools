@@ -183,6 +183,8 @@ Open for academic and educational use. Attribution appreciated.
 
 © 2025 Himanshu Deol – MBA Business Analytics
 
+https://www.linkedin.com/in/himanshudeol/
+
 ---
 
 ## 📬 Contributions & Feedback
